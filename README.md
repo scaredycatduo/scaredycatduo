@@ -10,7 +10,7 @@ $${\color{purple}BUNZ \space BASICS}$$
 
  ${\color{orange}— \space bunz, \space anyprns \space (usually \space she/him)}$
   ${\color{orange}filipino/chinese, \space i \space can \space only \space speak \space en/filo \space and \space understand \space cebuano}$
-${\color{orange}— \space please \space follow \space basic \space dni!}$ [click here](https://basic-dni.crd.co/)
+  ${\color{orange}— \space please \space follow \space basic \space dni!}$ [click here](https://basic-dni.crd.co/)
 
 $${\color{purple}PT \space STATUS \space MEANINGS}$$
 
