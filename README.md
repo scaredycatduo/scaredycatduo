@@ -1,6 +1,4 @@
 the lines below the texts mean u can scroll it horizontally...
-[ata](https://scaredycatduo.atabook.org/) [tt](https://tiktok.com/@4viika/)
-![](https://files.catbox.moe/9oci54.png)
 
 ![](https://files.catbox.moe/tzwqv6.gif)
 
