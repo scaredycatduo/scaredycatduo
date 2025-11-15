@@ -28,8 +28,6 @@
 
 <p align="center"> 
   ${\textsf{\color{orange}busy + away =}}$
-  offtab and mostly unresponsive, w2i but dont have ur hopes too high..
-
-<p align="center"> 
+  offtab and mostly unresponsive, w2i but dont have ur hopes too high..<br>
   ${\textsf{\color{orange}online =}}$
-  more responsive verbally, slight physically (in game) absent.
+  more responsive verbally, slight physically (in game) absent.<br>
