@@ -8,7 +8,7 @@
 
 <br>
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=100&color=B21226&plastic&label=⠀BUNZ+;+INFO⠀"></img></p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=777&color=B21226&plastic&label=⠀BUNZ+;+INFO⠀"></img></p>
 <br>
 
 <br>
@@ -23,7 +23,7 @@
 
 <br>
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=100&color=B21226&plastic&label=⠀PT+;+STATUS⠀"></img></p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=777&color=B21226&plastic&label=⠀PT+;+STATUS⠀"></img></p>
 <br><br>
 
 <p align="center"> 
