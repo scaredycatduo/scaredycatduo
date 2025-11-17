@@ -1,3 +1,6 @@
+<p align="center"> 
+<a href="https://tiktok.com/@4viika/"> artacc</a> — <a href="https://lots-for-bunz.straw.page/">strawpage</a> 
+
 <br>
 
 ![](https://files.catbox.moe/9oci54.png)
