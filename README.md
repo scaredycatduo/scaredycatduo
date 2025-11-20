@@ -1,5 +1,7 @@
 <p align="center"> 
-<a href="https://tiktok.com/@4viika/"> artacc</a> — <a href="https://lots-for-bunz.straw.page/">strawpage</a> 
+  <a href="https://tiktok.com/@4viika/"> artacc</a> — <a href="https://lots-for-bunz.straw.page/">strawpage</a>
+  <p align="center"> 
+  ${\textsf{\color{orange}yes im bunz and iika its just an alias}}$<br>
 
 <br>
 
