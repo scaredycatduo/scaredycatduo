@@ -1,7 +1,6 @@
 <p align="center"> 
-  <a href="https://tiktok.com/@4viika/"> artacc</a> — <a href="https://lots-for-bunz.straw.page/">strawpage</a>
-  <p align="center"> 
-  ${\textsf{\color{orange}yes im bunz and iika its just an alias}}$<br>
+  <a href="https://tiktok.com/@4viika/"> artacc</a> ${\textsf{\color{orange} ♥︎}}$ <a href="https://lots-for-bunz.straw.page/">strawpage</a> <br>
+  <a href="https://colormytree.me/2025/01KB8F14QPEF30RNJ4ZDR67A0V"> 🎄 color my tree 🎄</a>
 
 <br>
 
