@@ -1,39 +1,14 @@
-<p align="center"> 
-  <a href="https://tiktok.com/@4viika/"> tiktok (art)</a> ${\textsf{\color{orange} ♥︎}}$ <a href="https://lots-for-bunz.straw.page/">strawpage</a> <br>
-  <a href="https://colormytree.me/2025/01KB8F14QPEF30RNJ4ZDR67A0V"> 🎄 color my tree 🎄</a>
+my readme kinda ugly compared to the ones I make for my friends so like this is a work in progress but um here's my basic info ig. it's not like I want friends or anything ig./j
 
-<br>
+hi me bunz I use any prns but she/him is more used on me
 
-![](https://files.catbox.moe/9oci54.png)
+I speak eng/filo wowww bunz is a filipino (int mcyt filipino fans 👀)
 
-![](https://files.catbox.moe/tzwqv6.gif)
-<br><br>
+If u wanna become moots/oomfs I am open I will accept cuz I love moots/oomfs thanks
 
+🌙/⛔️ = little to no resp (w2i if u RLLY wanna talk to me 🤗🤗🤗)
 
-<br>
+🟢 = Im wide awake and im ready for any conversations outside whispers 😂😂😂
 
-<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=1&color=B21226&plastic&label=⠀BUNZ+;+INFO⠀"></img></p>
-<br>
+I also like it when people cuddle me pls cuddle me!!!!11 I really appreciate it so much even if ur pony is from a different one from mine:)
 
-<br>
-
-<p align="center"> 
-  ${\textsf{\color{orange} bunz, anyprn she/him pref}}$<br>
-  ${\textsf{\color{orange}filipino-chinese, only en/filo..}}$<br>
-   ${\textsf{\color{orange} follow this basic dni plz}}$<br>
-  (https://basic-dni.crd.co/)<br>
-<br><br>
-
-
-<br>
-
-<p align="center"><img src="https://komarev.com/ghpvc/?username=scaredycatduo&base=1&color=B21226&plastic&label=⠀PT+;+STATUS⠀"></img></p>
-<br><br>
-
-<p align="center"> 
-  ${\textsf{\color{orange}busy + away =}}$
-  offtab and mostly unresponsive, w2i but dont have ur hopes too high..<br>
-  ${\textsf{\color{orange}online =}}$
-  more responsive verbally, slight physically (in game) absent.<br>
-
-  
