@@ -13,7 +13,7 @@
     $${\textsf{\color{#DDCCC0}filo/ch　　taken}}$$<br>
 
   <br>
-  <a href="https://en.pronouns.page/@bunzywhunzy"> prnspage</a> $${\textsf{\color{#DDCCC0}✧}}$$ <a href="https://scaredycatduo.atabook.org"> atabook</a> <br>
+  <a href="https://en.pronouns.page/@bunzywhunzy"> prnspage</a> $${\textsf{\color{#DDCCC0}✧}}$$ <a href="https://lots-for-bunz.straw.page"> strawpage</a> <br>
   
   <br>
  
