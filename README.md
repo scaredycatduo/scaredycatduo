@@ -24,8 +24,11 @@
 
   
   <br>
- 
 
- <div align="center">
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xbajw4xxoabluw4bj4m5g3jn54&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=ccbab6&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
+  <br>
+ 
+<div align="center">
 
  <img width="500" height="700" alt="1000057047" src="https://files.catbox.moe/wivkhn.png" />
