@@ -1,5 +1,6 @@
  <p align="center"> 
-    $${\textsf{\color{#DDCCC0}bunzBLACLISTED FROM SIGNING ATABOOK: WILLOW. AND FEN. UR GONNA GET THE BIG GUNS SOON. I HATE U BOTH./satire}}$$<br>
+    $${\textsf{\color{#DDCCC0}BLACLISTED FROM SIGNING ATABOOK:}}$$<br>
+    $${\textsf{\color{#DDCCC0}WILLOW. AND FEN. UR GONNA GET THE BIG GUNS SOON. I HATE U BOTH./satire}}$$<br>
 
 <div align="center">
 
