@@ -1,3 +1,6 @@
+ <p align="center"> 
+    $${\textsf{\color{#DDCCC0}bunzBLACLISTED FROM SIGNING ATABOOK: WILLOW. AND FEN. UR GONNA GET THE BIG GUNS SOON. I HATE U BOTH./satire}}$$<br>
+
 <div align="center">
 
  <img width="500" height="700" alt="1000057047" src="https://files.catbox.moe/gvjrgx.png" /> <br>
