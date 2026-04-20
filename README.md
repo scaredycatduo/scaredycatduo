@@ -5,7 +5,7 @@ $${\textsf{\color{#DDCCC0}BLACLISTED FROM SIGNING ATABOOK:}}$$<br>
 
 <div align="center">
 
- <img width="500" height="30" alt="1000057047" src="https://files.catbox.moe/gvjrgx.png" /> <br>
+ <img width="500" height="50" alt="1000057047" src="https://files.catbox.moe/gvjrgx.png" /> <br>
 
  <div align="center">
  
@@ -36,4 +36,4 @@ $${\textsf{\color{#DDCCC0}BLACLISTED FROM SIGNING ATABOOK:}}$$<br>
  
 <div align="center">
 
- <img width="500" height="30" alt="1000057047" src="https://files.catbox.moe/wivkhn.png" />
+ <img width="500" height="50" alt="1000057047" src="https://files.catbox.moe/wivkhn.png" />
