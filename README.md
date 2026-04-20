@@ -9,7 +9,7 @@ $${\textsf{\color{#DDCCC0}BLACLISTED FROM SIGNING ATABOOK:}}$$<br>
 
  <div align="center">
  
- <img width="500" height="185" alt="1000057047" src="https://files.catbox.moe/jvzotn.png" /> <br>
+ <img width="500" height="300" alt="1000057047" src="https://files.catbox.moe/jvzotn.png" /> <br>
 
  <br>
 
