@@ -34,3 +34,11 @@
 <div align="center">
 
  <img width="500" height="50" alt="1000057047" src="https://files.catbox.moe/wivkhn.png" />
+
+ <br> <br>
+
+ <div align="center">
+
+ <img width="500" height="495" alt="1000057047" src="https://files.catbox.moe/81sbhp.jpg" /> <br>
+
+ $${\textsf{\color{#DDCCC0}ty ajax this is so cute wym.　ai spoke is ew.}}$$<br>
